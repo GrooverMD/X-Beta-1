@@ -1,1 +1,1 @@
-X βeta 1 is the code name for SG Studio
+X βeta 1 is the creator of SG Studio (SynGen Studio)
